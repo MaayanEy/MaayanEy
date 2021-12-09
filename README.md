@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MaayanEy
 - 👀 I’m interested in ...Art and People
 - 🌱 I’m currently learning ... design and 3d
-- 💞️ I’m looking to collaborate on ... verything that is interesting and good.
+- 💞️ I’m looking to collaborate on ... evrything that is interesting and good.
 - 📫 How to reach me ... Maayan5389@gmail.com
 
 <!---
